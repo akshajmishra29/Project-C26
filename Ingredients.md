@@ -1,0 +1,8 @@
+Pasta — Any shape of pasta will do and you can swap in your favorite gluten-free or whole grain pasta if you’d like to.
+Vegetables — The type of veggies are up to you, but we love zucchini, yellow squash, jarred roasted red peppers, leafy greens, peas, corn, and cabbage. Options are endless, here.
+Onion, garlic, and tomato paste — These provide a base flavor for the simple sauce.
+Canned whole tomatoes — You can use diced or crushed tomatoes, but we love the texture of whole tomatoes for this recipe. Just after adding them to the pot, we crush them a little with a spoon so they fall apart into a chunky sauce. You can also use blanched, peeled fresh tomatoes.
+Herbs and spices — When we have it in the kitchen, we add fresh basil. Other herbs work, too (parsley and mint add a different flavor, but are excellent). Dried herbs like oregano, crushed red pepper flakes also make the sauce delicious.
+Mushroom powder — Okay, now this one is optional, but for the best, most flavorful vegetarian pasta, we highly recommend using mushroom powder. It adds a rich umami flavor to the sauce and is our secret weapon when making meatless recipes. We’ve used it before in our recipes. You can make it yourself or buy it. Trader Joe’s has even started to sell their own version. We have provided a few alternatives in the notes section below.
+
+These are the material required to begin the making of the recipe.
